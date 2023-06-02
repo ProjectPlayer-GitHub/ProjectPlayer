@@ -4,3 +4,5 @@ This is the official github page of ProjectPlayer, if you want to learn more abo
 Socials:
 
 https://www.instagram.com/_ita_dev/
+
+https://www.tiktok.com/@projectplayer.official
